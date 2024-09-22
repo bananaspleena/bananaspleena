@@ -1,1 +1,1 @@
-![¡ SPLIT FANART _D !](https://github.com/user-attachments/assets/dc8ba032-11fd-4594-bcc1-d838269b5ec9)
+![DreamParasite (Folly) From Regretevator](https://github.com/user-attachments/assets/c6f52826-920d-40d9-94d0-6e0eca040e98)
