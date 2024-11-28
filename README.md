@@ -1,4 +1,4 @@
-![Untitled206_20240831194357](https://github.com/user-attachments/assets/e6010d19-83ca-49e0-9a31-549cb2a06d7c)
 
 
 
+![Zenless_Zone_Zero_1_-removebg-preview](https://github.com/user-attachments/assets/cbce369a-22c7-43e0-b071-475f17169780)
