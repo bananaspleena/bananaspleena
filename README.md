@@ -1,4 +1,4 @@
 
+![art_cred_lejung101_on_twt-removebg-preview(1)](https://github.com/user-attachments/assets/9b21c3d0-d87a-4af5-9a4d-a955d88cfa7d)
 
-![Screenshot from 2024-12-06 02-48-18](https://github.com/user-attachments/assets/0c289edb-6606-4280-ace4-43dbe386e61a)
 
