@@ -1,7 +1,7 @@
-$${\color{pink}have a day!!}$$
+$${\color{yellow}YELLOW!!}$$
 
 <p align="center">
-  <img width="460" height="300" src="https://64.media.tumblr.com/c633ad53007766d291dc79794fb88b0e/3663fe512de42ba0-15/s250x400/26548cea0eb5838d2c23d6ffc4f149ae211527c9.gifv">
+  <img width="460" height="300" src="https://64.media.tumblr.com/88f50b1f66e6fd9f0b953b4f607a5348/6667c5813643868b-78/s500x750/3881984b252df201daf15615aee8e2124a8ffeba.gifv">
 </p>
 
 
