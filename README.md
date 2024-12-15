@@ -1,7 +1,7 @@
-$${\color{yellow}YELLOW!!}$$
+$${\color{pink}ILOBPARTYING!!}$$
 
 <p align="center">
-  <img width="460" height="300" src="https://64.media.tumblr.com/88f50b1f66e6fd9f0b953b4f607a5348/6667c5813643868b-78/s500x750/3881984b252df201daf15615aee8e2124a8ffeba.gifv">
+  <img width="460" height="300" src="https://64.media.tumblr.com/78a13357f5dc4a5015276a83d28ab8ef/4059aaf919bf0d32-cf/s540x810/27f363963c8f2b4bef303f9ce11e984d31a8356c.pnj">
 </p>
 
 
